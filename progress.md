@@ -34,6 +34,7 @@
 33. [Tsundere Akuyaku Reijou Liselotte](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Tsundere%20Akuyaku%20Reijou%20Liselotte%20to%20Jikkyou%20no%20Endou-kun%20to%20Kaisetsu%20no%20Kobayashi-san/ "Tsundere Akuyaku Reijou Liselotte")
 34. [Uzakichan wa Asobitai! Double](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Uzaki-chan%20wa%20Asobitai!%20Double/ "Uzakichan wa Asobitai! Double")
 35. [Vinland Saga S2](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Vinland%20Saga%20S2/ "Vinland Saga S2")
+36. [Shingeki no Kyojin Final Season](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Shingeki%20no%20Kyojin:%20The%20Final%20Season/Season%204/ "Shingeki no Kyojin Final Season)
 <!-- Akhir dari List anime -->
 
 ------------
