@@ -1,16 +1,17 @@
 <!-- Ini merupakan format bawaan khusus website kuhaku.id, mengubah format mungkin tidak dapat ditampilkan dengan baik pada website. -->
 
 <!-- List anime -->
+1. [Jigokuraku](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Jigokuraku/ "Jigokuraku")
+25. [Yamada-Kun To Lv999](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Yamada-Kun%20To%20Lv999%20No%20Koi%20Wo%20Suru/ "Yamada-Kun To Lv999")
+17. [Tengoku Daimakyou](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Tengoku%20Daimakyou/ "Tengoku Daimakyou")
 1. [Ayakashi Triangle](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Ayakashi%20Triangle/ "Ayakashi Triangle")
 3. [Bofuri S2](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Bofuri%20S2/ "Bofuri S2")
-25. [Yamada-Kun To Lv999](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Yamada-Kun%20To%20Lv999%20No%20Koi%20Wo%20Suru/ "Yamada-Kun To Lv999")
 7. [High Card](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20High%20Card/ "High Card")
 9. [KuboSan Wa Mob Wo Yurusanai](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Kubo-San%20Wa%20Mob%20Wo%20Yurusanai/ "KuboSan Wa Mob Wo Yurusanai")
 11. [Maou Gakuin No Futekigousha S2](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Maou%20Gakuin%20No%20Futekigousha%20S2/ "Maou Gakuin No Futekigousha S2")
 12. [Nier Automata Ver1.1A](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Nier%20Automata%20Ver1.1A/ "Nier Automata Ver1.1A")
 15. [Saikyou Onmyouji No Isekai Tenseiki](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Saikyou%20Onmyouji%20No%20Isekai%20Tenseiki/ "Saikyou Onmyouji No Isekai Tenseiki")
 16. [Seiken Densetsu Legend of Mana](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Seiken%20Densetsu%20Legend%20of%20Mana%20-%20The%20Teardrop%20Crystal/ "Seiken Densetsu Legend of Mana")
-17. [Tengoku Daimakyou](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Tengoku%20Daimakyou/ "Tengoku Daimakyou")
 29. [Tokyo Revengers S2](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Tokyo%20Revengers/ "Tokyo Revengers S2")
 20. [TomoChan Wa Onnanoko!](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Tomo-Chan%20Wa%20Onnanoko!/ "TomoChan Wa Onnanoko!")
 23. [Uzakichan wa Asobitai! Double](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Uzaki-chan%20wa%20Asobitai!%20Double/ "Uzakichan wa Asobitai! Double")
