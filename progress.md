@@ -3,6 +3,7 @@
 <!-- List anime -->
 1. [Ayakashi Triangle](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Ayakashi%20Triangle/ "Ayakashi Triangle")
 3. [Bofuri S2](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Bofuri%20S2/ "Bofuri S2")
+25. [Yamada-Kun To Lv999](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Yamada-Kun%20To%20Lv999%20No%20Koi%20Wo%20Suru/ "Yamada-Kun To Lv999")
 7. [High Card](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20High%20Card/ "High Card")
 9. [KuboSan Wa Mob Wo Yurusanai](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Kubo-San%20Wa%20Mob%20Wo%20Yurusanai/ "KuboSan Wa Mob Wo Yurusanai")
 11. [Maou Gakuin No Futekigousha S2](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Maou%20Gakuin%20No%20Futekigousha%20S2/ "Maou Gakuin No Futekigousha S2")
