@@ -4,6 +4,12 @@
 1. [Jigokuraku](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Jigokuraku/ "Jigokuraku")
 25. [Yamada-Kun To Lv999](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Yamada-Kun%20To%20Lv999%20No%20Koi%20Wo%20Suru/ "Yamada-Kun To Lv999")
 17. [Tengoku Daimakyou](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Tengoku%20Daimakyou/ "Tengoku Daimakyou")
+17. [Tensei Kizoku No Isekai Boukenroku](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Tensei%20Kizoku%20No%20Isekai%20Boukenroku/ "Tensei Kizoku No Isekai Boukenroku")
+17. [My Home Hero](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20My%20Home%20Hero/ "My Home Hero")
+17. [Alice Gear Aegis Expansion](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Alice%20Gear%20Aegis%20Expansion/ "Alice Gear Aegis Expansion")
+17. [Kuma Kuma Bear S2](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Kuma%20Kuma%20Bear%20S2/ "Kuma Kuma Bear S2")
+17. [Isekai Wa Smartphone S2](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Isekai%20Wa%20Smartphone/ "Isekai Wa Smartphone S2")
+17. [Boku No Kokoro No Yabai Yatsu](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Boku%20No%20Kokoro%20No%20Yabai%20Yatsu/ "Boku No Kokoro No Yabai Yatsu")
 1. [Ayakashi Triangle](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Ayakashi%20Triangle/ "Ayakashi Triangle")
 3. [Bofuri S2](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Bofuri%20S2/ "Bofuri S2")
 7. [High Card](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20High%20Card/ "High Card")
@@ -26,3 +32,4 @@
 
 <!-- Gunakan website berikut untuk mengedit markdown dengan mudah :) -->
 <!-- https://markdown-editor.github.io/ -->
+
