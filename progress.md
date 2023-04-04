@@ -10,6 +10,7 @@
 17. [Kuma Kuma Bear S2](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Kuma%20Kuma%20Bear%20S2/ "Kuma Kuma Bear S2")
 17. [Isekai Wa Smartphone S2](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Isekai%20Wa%20Smartphone/ "Isekai Wa Smartphone S2")
 17. [Boku No Kokoro No Yabai Yatsu](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Boku%20No%20Kokoro%20No%20Yabai%20Yatsu/ "Boku No Kokoro No Yabai Yatsu")
+17. [Kizuna No Allele](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Kizuna%20No%20Allele/ "Kizuna No Allele")
 1. [Ayakashi Triangle](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Ayakashi%20Triangle/ "Ayakashi Triangle")
 3. [Bofuri S2](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Bofuri%20S2/ "Bofuri S2")
 7. [High Card](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20High%20Card/ "High Card")
