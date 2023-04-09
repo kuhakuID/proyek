@@ -35,7 +35,7 @@
 32. [Vinland Saga S2](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Vinland%20Saga%20S2/ "Vinland Saga S2")
 33. [Watashi No Yuri Wa Oshigoto Desu!](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Watashi%20No%20Yuri%20Wa%20Oshigoto%20Desu!/ "Watashi No Yuri Wa Oshigoto Desu!")
 34. [Yamada-Kun To Lv999](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Yamada-Kun%20To%20Lv999%20No%20Koi%20Wo%20Suru/ "Yamada-Kun To Lv999")
-35. [Yuusha Ga Shinda!](hhttps://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Yuusha%20Ga%20Shinda!/ "Yuusha Ga Shinda!")
+35. [Yuusha Ga Shinda!](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Yuusha%20Ga%20Shinda!/ "Yuusha Ga Shinda!")
 <!-- Akhir dari List anime -->
 
 ------------
@@ -45,4 +45,3 @@
 
 <!-- Gunakan website berikut untuk mengedit markdown dengan mudah :) -->
 <!-- https://markdown-editor.github.io/ -->
-
