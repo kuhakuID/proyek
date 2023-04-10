@@ -35,8 +35,9 @@
 32. [Uzakichan wa Asobitai! Double](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Uzaki-chan%20wa%20Asobitai!%20Double/ "Uzakichan wa Asobitai! Double")
 33. [Vinland Saga S2](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Vinland%20Saga%20S2/ "Vinland Saga S2")
 34. [Watashi No Yuri Wa Oshigoto Desu!](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Watashi%20No%20Yuri%20Wa%20Oshigoto%20Desu!/ "Watashi No Yuri Wa Oshigoto Desu!")
-35. [Yamada-Kun To Lv999](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Yamada-Kun%20To%20Lv999%20No%20Koi%20Wo%20Suru/ "Yamada-Kun To Lv999")
-36. [Yuusha Ga Shinda!](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Yuusha%20Ga%20Shinda!/ "Yuusha Ga Shinda!")
+35. [World Dai Star](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20World%20Dai%20Star/ "World Dai Star")
+36. [Yamada-Kun To Lv999](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Yamada-Kun%20To%20Lv999%20No%20Koi%20Wo%20Suru/ "Yamada-Kun To Lv999")
+37. [Yuusha Ga Shinda!](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Yuusha%20Ga%20Shinda!/ "Yuusha Ga Shinda!")
 <!-- Akhir dari List anime -->
 
 ------------
