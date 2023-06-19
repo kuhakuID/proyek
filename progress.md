@@ -11,7 +11,6 @@
 10. [Jigokuraku](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Jigokuraku/ "Jigokuraku")
 11. [Jijou Wo Shiranai Tenkousei](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Jijou%20Wo%20Shiranai%20Tenkousei%20Ga%20Guigui%20Kuru/ "Jijou Wo Shiranai Tenkousei")
 12. [Kaminaki Sekai no Kamisama Katsudou](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Kaminaki%20Sekai%20No%20Kamisama%20Katsudou/ "Kaminaki Sekai no Kamisama Katsudou")
-13. [Kimetsu no Yaiba: Katanakaji no Sato-hen](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Kimetsu%20no%20Yaiba:%20Katanakaji%20no%20Sato-hen/ "Kimetsu no Yaiba: Katanakaji no Sato-hen")
 14. [Kimi Wa Houkago Insomnia](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Kimi%20Wa%20Houkago%20Insomnia/ "Kimi Wa Houkago Insomnia")
 14. [Kizuna No Allele](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Kizuna%20No%20Allele/ "Kizuna No Allele")
 15. [KonoSuba S3](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Kono%20Subarashii%20Sekai%20ni%20Shukufuku%20wo!%20S3/ "KonoSuba S3")
