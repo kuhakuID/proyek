@@ -29,7 +29,6 @@
 27. [Shingeki no Kyojin Final Season](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Shingeki%20no%20Kyojin:%20The%20Final%20Season/Season%204/ "Shingeki no Kyojin Final Season")
 28. [Skip to Loafer](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Skip%20to%20Loafer/ "Skip to Loafer")
 29. [Tengoku Daimakyou](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Tengoku%20Daimakyou/ "Tengoku Daimakyou")
-30. [Tensei Kizoku No Isekai Boukenroku](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Tensei%20Kizoku%20No%20Isekai%20Boukenroku/ "Tensei Kizoku No Isekai Boukenroku")
 31. [Tokyo Revengers S2](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Tokyo%20Revengers/ "Tokyo Revengers S2")
 32. [Tonikaku Kawaii S2](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Tonikaku%20Kawaii%20S2/ "Tonikaku Kawaii S2")
 33. [Uzakichan wa Asobitai! Double](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Uzaki-chan%20wa%20Asobitai!%20Double/ "Uzakichan wa Asobitai! Double")
