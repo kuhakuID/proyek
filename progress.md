@@ -15,7 +15,6 @@
 14. [Kizuna No Allele](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Kizuna%20No%20Allele/ "Kizuna No Allele")
 15. [KonoSuba S3](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Kono%20Subarashii%20Sekai%20ni%20Shukufuku%20wo!%20S3/ "KonoSuba S3")
 16. [KuboSan Wa Mob Wo Yurusanai](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Kubo-San%20Wa%20Mob%20Wo%20Yurusanai/ "KuboSan Wa Mob Wo Yurusanai")
-18. [Mahoutsukai No Yome S2](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Mahoutsukai%20No%20Yome%20S2/ "Mahoutsukai No Yome")
 19. [Maou Gakuin No Futekigousha S2](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Maou%20Gakuin%20No%20Futekigousha%20S2/ "Maou Gakuin No Futekigousha S2")
 19. [Mashle: Magic and Muscles](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Mashle/ "Mashle: Magic and Muscles")
 20. [Megami No Cafe Terrace](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Megami%20No%20Cafe%20Terrace/ "Megami No Cafe Terrace")
@@ -31,10 +30,8 @@
 31. [Tokyo Revengers S2](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Tokyo%20Revengers/ "Tokyo Revengers S2")
 32. [Tonikaku Kawaii S2](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Tonikaku%20Kawaii%20S2/ "Tonikaku Kawaii S2")
 33. [Uzakichan wa Asobitai! Double](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Uzaki-chan%20wa%20Asobitai!%20Double/ "Uzakichan wa Asobitai! Double")
-35. [Watashi No Yuri Wa Oshigoto Desu!](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Watashi%20No%20Yuri%20Wa%20Oshigoto%20Desu!/ "Watashi No Yuri Wa Oshigoto Desu!")
 36. [World Dai Star](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20World%20Dai%20Star/ "World Dai Star")
 37. [Yamada-Kun To Lv999](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Yamada-Kun%20To%20Lv999%20No%20Koi%20Wo%20Suru/ "Yamada-Kun To Lv999")
-38. [Yuusha Ga Shinda!](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Yuusha%20Ga%20Shinda!/ "Yuusha Ga Shinda!")
 <!-- Akhir dari List anime -->
 
 ------------
