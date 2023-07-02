@@ -17,7 +17,6 @@
 19. [Mashle: Magic and Muscles](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Mashle/ "Mashle: Magic and Muscles")
 21. [My Home Hero](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20My%20Home%20Hero/ "My Home Hero")
 22. [Nier Automata Ver1.1A](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Nier%20Automata%20Ver1.1A/ "Nier Automata Ver1.1A")
-23. [Oshi no Ko](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Oshi%20no%20Ko/ "Oshi no Ko")
 24. [Otonari ni Ginga](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Otonari%20ni%20Ginga/ "Otonari ni Ginga")
 25. [Saikyou Onmyouji No Isekai Tenseiki](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Saikyou%20Onmyouji%20No%20Isekai%20Tenseiki/ "Saikyou Onmyouji No Isekai Tenseiki")
 26. [Seiken Densetsu Legend of Mana](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Seiken%20Densetsu%20Legend%20of%20Mana%20-%20The%20Teardrop%20Crystal/ "Seiken Densetsu Legend of Mana")
