@@ -22,7 +22,6 @@
 26. [Saikyou Onmyouji No Isekai Tenseiki](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Saikyou%20Onmyouji%20No%20Isekai%20Tenseiki/ "Saikyou Onmyouji No Isekai Tenseiki")
 27. [Seiken Densetsu Legend of Mana](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Seiken%20Densetsu%20Legend%20of%20Mana%20-%20The%20Teardrop%20Crystal/ "Seiken Densetsu Legend of Mana")
 28. [Shingeki no Kyojin Final Season](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Shingeki%20no%20Kyojin:%20The%20Final%20Season/Season%204/ "Shingeki no Kyojin Final Season")
-29. [Skip to Loafer](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Skip%20to%20Loafer/ "Skip to Loafer")
 30. [Tengoku Daimakyou](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Tengoku%20Daimakyou/ "Tengoku Daimakyou")
 31. [Tokyo Revengers S2](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Tokyo%20Revengers/ "Tokyo Revengers S2")
 33. [Uzakichan wa Asobitai! Double](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Uzaki-chan%20wa%20Asobitai!%20Double/ "Uzakichan wa Asobitai! Double")
