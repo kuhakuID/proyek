@@ -14,7 +14,6 @@
 15. [KonoSuba S3](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Kono%20Subarashii%20Sekai%20ni%20Shukufuku%20wo!%20S3/ "KonoSuba S3")
 16. [KuboSan Wa Mob Wo Yurusanai](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Kubo-San%20Wa%20Mob%20Wo%20Yurusanai/ "KuboSan Wa Mob Wo Yurusanai")
 19. [Maou Gakuin No Futekigousha S2](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Maou%20Gakuin%20No%20Futekigousha%20S2/ "Maou Gakuin No Futekigousha S2")
-19. [Mashle: Magic and Muscles](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Mashle/ "Mashle: Magic and Muscles")
 21. [My Home Hero](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20My%20Home%20Hero/ "My Home Hero")
 22. [Nier Automata Ver1.1A](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Nier%20Automata%20Ver1.1A/ "Nier Automata Ver1.1A")
 24. [Otonari ni Ginga](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Otonari%20ni%20Ginga/ "Otonari ni Ginga")
