@@ -27,6 +27,8 @@
 30. [Tengoku Daimakyou](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Tengoku%20Daimakyou/ "Tengoku Daimakyou")
 31. [Tokyo Revengers S2](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Tokyo%20Revengers/ "Tokyo Revengers S2")
 33. [Uzakichan wa Asobitai! Double](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Uzaki-chan%20wa%20Asobitai!%20Double/ "Uzakichan wa Asobitai! Double")
+34. [Uchi No Kaisha No Chiisai Senpai No Hanashi]([sobitai!%20Double/](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Uchi%20No%20Kaisha%20No%20Chiisai%20Senpai%20No%20Hanashi/) "Uchi No Kaisha No Chiisai Senpai No Hanashi")
+35. [Yumemiru Danshi Wa Genjitsushugisha]([sobitai!%20Double/](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Yumemiru%20Danshi%20Wa%20Genjitsushugisha/) "Yumemiru Danshi Wa Genjitsushugisha")
 <!-- Akhir dari List anime -->
 
 ------------
