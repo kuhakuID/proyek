@@ -4,6 +4,7 @@
 1. [Alice Gear Aegis Expansion](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Alice%20Gear%20Aegis%20Expansion/ "Alice Gear Aegis Expansion")
 2. [Ayakashi Triangle](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Ayakashi%20Triangle/ "Ayakashi Triangle")
 3. [Genjitsu No Yohane](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Genjitsu%20No%20Yohane%20Sunshine%20In%20The%20Mirror/ "Genjitsu No Yohane")
+4. [Horimiya -piece-](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Horimiya%20-piece-/ "Horimiya -piece-")
 5. [Idolmaster Cinderella Girls U149](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Idolmaster%20Cinderella%20Girls%20U149/ "Idolmaster Cinderella Girls U149")
 6. [JIsekai De Cheat Skill Wo Te Ni Shita](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Isekai%20De%20Cheat%20Skill%20Wo%20Te%20Ni%20Shita%20Ore%20Wa%20%20Genjitsu%20Sekai%20Wo%20Mo%20Musou%20Suru%20-%20Level%20Up%20Wa%20Jinsei%20Wo%20Kaeta/ "JIsekai De Cheat Skill Wo Te Ni Shita")
 8. [Isekai Shoukan wa Nidome desu](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Isekai%20Shoukan%20wa%20Nidome%20desu/ "Isekai Shoukan wa Nidome desu")
