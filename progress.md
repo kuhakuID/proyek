@@ -9,6 +9,7 @@
 6. [JIsekai De Cheat Skill Wo Te Ni Shita](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Isekai%20De%20Cheat%20Skill%20Wo%20Te%20Ni%20Shita%20Ore%20Wa%20%20Genjitsu%20Sekai%20Wo%20Mo%20Musou%20Suru%20-%20Level%20Up%20Wa%20Jinsei%20Wo%20Kaeta/ "JIsekai De Cheat Skill Wo Te Ni Shita")
 8. [Isekai Shoukan wa Nidome desu](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Isekai%20Shoukan%20wa%20Nidome%20desu/ "Isekai Shoukan wa Nidome desu")
 9. [Jitsu Wa Ore, Saikyou Deshita](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Jitsu%20Wa%20Ore,%20Saikyou%20Deshita/ "Jitsu Wa Ore, Saikyou Deshita")
+10. [Jujutsu Kaisen S2](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Jujutsu%20Kaisen%20S2/ "Jujutsu Kaisen S2")
 11. [Jijou Wo Shiranai Tenkousei](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Jijou%20Wo%20Shiranai%20Tenkousei%20Ga%20Guigui%20Kuru/ "Jijou Wo Shiranai Tenkousei")
  [Kizuna No Allele](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Kizuna%20No%20Allele/ "Kizuna No Allele")
 14. [Kizuna No Allele](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Kizuna%20No%20Allele/ "Kizuna No Allele")
@@ -30,7 +31,8 @@
 33. [Uzakichan wa Asobitai! Double](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Uzaki-chan%20wa%20Asobitai!%20Double/ "Uzakichan wa Asobitai! Double")
 34. [Uchi No Kaisha No Chiisai Senpai No Hanashi](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Uchi%20No%20Kaisha%20No%20Chiisai%20Senpai%20No%20Hanashi/ "Uchi No Kaisha No Chiisai Senpai No Hanashi")
 35. [Undead Girl Murder Farce](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Undead%20Girl%20Murder%20Farce/ "Undead Girl Murder Farce")
-36. [Yumemiru Danshi Wa Genjitsushugisha](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Yumemiru%20Danshi%20Wa%20Genjitsushugisha/ "Yumemiru Danshi Wa Genjitsushugisha")
+36. [Watashi No Shiawase Na Kekkon](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Undead%20Girl%20Murder%20Farce/ "Watashi No Shiawase Na Kekkon")
+37. [Yumemiru Danshi Wa Genjitsushugisha]([https:/](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Watashi%20No%20Shiawase%20Na%20Kekkon/) "Yumemiru Danshi Wa Genjitsushugisha")
 <!-- Akhir dari List anime -->
 
 ------------
