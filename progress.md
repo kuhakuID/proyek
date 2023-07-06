@@ -31,8 +31,8 @@
 33. [Uzakichan wa Asobitai! Double](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Uzaki-chan%20wa%20Asobitai!%20Double/ "Uzakichan wa Asobitai! Double")
 34. [Uchi No Kaisha No Chiisai Senpai No Hanashi](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Uchi%20No%20Kaisha%20No%20Chiisai%20Senpai%20No%20Hanashi/ "Uchi No Kaisha No Chiisai Senpai No Hanashi")
 35. [Undead Girl Murder Farce](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Undead%20Girl%20Murder%20Farce/ "Undead Girl Murder Farce")
-36. [Watashi No Shiawase Na Kekkon](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Undead%20Girl%20Murder%20Farce/ "Watashi No Shiawase Na Kekkon")
-37. [Yumemiru Danshi Wa Genjitsushugisha](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Watashi%20No%20Shiawase%20Na%20Kekkon/ "Yumemiru Danshi Wa Genjitsushugisha")
+36. [Watashi No Shiawase Na Kekkon](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Watashi%20No%20Shiawase%20Na%20Kekkon/ "Watashi No Shiawase Na Kekkon")
+37. [Yumemiru Danshi Wa Genjitsushugisha](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Yumemiru%20Danshi%20Wa%20Genjitsushugisha/ "Yumemiru Danshi Wa Genjitsushugisha")
 <!-- Akhir dari List anime -->
 
 ------------
