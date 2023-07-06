@@ -11,7 +11,6 @@
 9. [Jitsu Wa Ore, Saikyou Deshita](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Jitsu%20Wa%20Ore,%20Saikyou%20Deshita/ "Jitsu Wa Ore, Saikyou Deshita")
 11. [Jijou Wo Shiranai Tenkousei](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Jijou%20Wo%20Shiranai%20Tenkousei%20Ga%20Guigui%20Kuru/ "Jijou Wo Shiranai Tenkousei")
  [Kizuna No Allele](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Kizuna%20No%20Allele/ "Kizuna No Allele")
-12. [Kaminaki Sekai no Kamisama Katsudou](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Kaminaki%20Sekai%20No%20Kamisama%20Katsudou/ "Kaminaki Sekai no Kamisama Katsudou")
 14. [Kizuna No Allele](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Kizuna%20No%20Allele/ "Kizuna No Allele")
 15. [KonoSuba S3](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Kono%20Subarashii%20Sekai%20ni%20Shukufuku%20wo!%20S3/ "KonoSuba S3")
 16. [KuboSan Wa Mob Wo Yurusanai](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Kubo-San%20Wa%20Mob%20Wo%20Yurusanai/ "KuboSan Wa Mob Wo Yurusanai")
@@ -30,7 +29,8 @@
 31. [Tokyo Revengers S2](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Tokyo%20Revengers/ "Tokyo Revengers S2")
 33. [Uzakichan wa Asobitai! Double](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Uzaki-chan%20wa%20Asobitai!%20Double/ "Uzakichan wa Asobitai! Double")
 34. [Uchi No Kaisha No Chiisai Senpai No Hanashi](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Uchi%20No%20Kaisha%20No%20Chiisai%20Senpai%20No%20Hanashi/ "Uchi No Kaisha No Chiisai Senpai No Hanashi")
-35. [Yumemiru Danshi Wa Genjitsushugisha](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Yumemiru%20Danshi%20Wa%20Genjitsushugisha/ "Yumemiru Danshi Wa Genjitsushugisha")
+35. [Undead Girl Murder Farce](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Undead%20Girl%20Murder%20Farce/ "Undead Girl Murder Farce")
+36. [Yumemiru Danshi Wa Genjitsushugisha](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Yumemiru%20Danshi%20Wa%20Genjitsushugisha/ "Yumemiru Danshi Wa Genjitsushugisha")
 <!-- Akhir dari List anime -->
 
 ------------
