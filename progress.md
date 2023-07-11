@@ -34,6 +34,7 @@
 35. [Undead Girl Murder Farce](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Undead%20Girl%20Murder%20Farce/ "Undead Girl Murder Farce")
 36. [Watashi No Shiawase Na Kekkon](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Watashi%20No%20Shiawase%20Na%20Kekkon/ "Watashi No Shiawase Na Kekkon")
 37. [Yumemiru Danshi Wa Genjitsushugisha](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Yumemiru%20Danshi%20Wa%20Genjitsushugisha/ "Yumemiru Danshi Wa Genjitsushugisha")
+38. [Zom 100 - Zombie Ni Naru Made](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Zom%20100%20-%20Zombie%20Ni%20Naru%20Made%20Ni%20Shitai%20100%20No%20Koto/ "Zom 100 - Zombie Ni Naru Made")
 <!-- Akhir dari List anime -->
 
 ------------
