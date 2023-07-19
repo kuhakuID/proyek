@@ -22,7 +22,6 @@
 21. [Maou Gakuin No Futekigousha S2](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Maou%20Gakuin%20No%20Futekigousha%20S2/ "Maou Gakuin No Futekigousha S2")
 22. [My Home Hero](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20My%20Home%20Hero/ "My Home Hero")
 23. [Nier Automata Ver1.1A](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Nier%20Automata%20Ver1.1A/ "Nier Automata Ver1.1A")
-24. [Otonari ni Ginga](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Otonari%20ni%20Ginga/ "Otonari ni Ginga")
 25. [Rurouni Kenshin (2023)](https://backup.indexkuhaku.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Rurouni%20Kenshin%20(2023)/ "Rurouni Kenshin (2023)")
 26. [Ryza no Atelier](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Ryza%20no%20Atelier/ "Ryza no Atelier")
 27. [Saikyou Onmyouji No Isekai Tenseiki](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Saikyou%20Onmyouji%20No%20Isekai%20Tenseiki/ "Saikyou Onmyouji No Isekai Tenseiki")
