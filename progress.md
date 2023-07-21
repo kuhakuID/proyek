@@ -13,7 +13,6 @@
 11. [Jijou Wo Shiranai Tenkousei](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Jijou%20Wo%20Shiranai%20Tenkousei%20Ga%20Guigui%20Kuru/ "Jijou Wo Shiranai Tenkousei")
  [Kizuna No Allele](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Kizuna%20No%20Allele/ "Kizuna No Allele")
 14. [Kizuna No Allele](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Kizuna%20No%20Allele/ "Kizuna No Allele")
-15. [KonoSuba S3](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Kono%20Subarashii%20Sekai%20ni%20Shukufuku%20wo!%20S3/ "KonoSuba S3")
 16. [KuboSan Wa Mob Wo Yurusanai](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Kubo-San%20Wa%20Mob%20Wo%20Yurusanai/ "KuboSan Wa Mob Wo Yurusanai")
 17. [Level 1 Dakedo Unique Skill De Saikyou Desu](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Level%201%20Dakedo%20Unique%20Skill%20De%20Saikyou%20Desu/ "Level 1 Dakedo Unique Skill De Saikyou Desu")
 18. [Liar Liar](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Liar%20Liar/ "Liar Liar")
