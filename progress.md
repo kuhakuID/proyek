@@ -17,7 +17,7 @@
 17. [Level 1 Dakedo Unique Skill De Saikyou Desu](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Level%201%20Dakedo%20Unique%20Skill%20De%20Saikyou%20Desu/ "Level 1 Dakedo Unique Skill De Saikyou Desu")
 18. [Liar Liar](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Liar%20Liar/ "Liar Liar")
 19. [Masamune-Kun No Revenge S2](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Masamune-Kun%20No%20Revenge%20S2/ " Masamune-Kun No Revenge S2")
-20. [Mushoku Tensei](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Mushoku%20Tensei%20S2/ " Mushoku Tensei")
+20. [Mushoku Tensei S2](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Mushoku%20Tensei%20S2/ " Mushoku Tensei S2")
 21. [Maou Gakuin No Futekigousha S2](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Maou%20Gakuin%20No%20Futekigousha%20S2/ "Maou Gakuin No Futekigousha S2")
 22. [My Home Hero](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20My%20Home%20Hero/ "My Home Hero")
 23. [Nier Automata Ver1.1A](https://db.shirozone.workers.dev/0:/[1080P]%20ANIME%20ONGOING/[kuhaku.id]%20Nier%20Automata%20Ver1.1A/ "Nier Automata Ver1.1A")
