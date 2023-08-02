@@ -23,7 +23,6 @@
 25. [Rurouni Kenshin (2023)](https://backup.indexkuhaku.workers.dev/0:/[1080P]%20ANIME%20ONGOING/Rurouni%20Kenshin%20(2023)/Season%201/ "Rurouni Kenshin (2023)")
 26. [Ryza no Atelier](https://backup.indexkuhaku.workers.dev/0:/[1080P]%20ANIME%20ONGOING/Ryza%20no%20Atelier/Season%201/ "Ryza no Atelier")
 27. [Saikyou Onmyouji No Isekai Tenseiki](https://backup.indexkuhaku.workers.dev/0:/[1080P]%20ANIME%20ONGOING/Saikyou%20Onmyouji%20No%20Isekai%20Tenseiki/Season%201/ "Saikyou Onmyouji No Isekai Tenseiki")
-28. [Seiken Densetsu Legend of Mana](https://backup.indexkuhaku.workers.dev/0:/[1080P]%20ANIME%20ONGOING/Seiken%20Densetsu%20Legend%20of%20Mana%20-%20The%20Teardrop%20Crystal/Season%201/ "Seiken Densetsu Legend of Mana")
 29. [Suki Na Ko Ga Megane Wo Wasureta](https://backup.indexkuhaku.workers.dev/0:/[1080P]%20ANIME%20ONGOING/Suki%20Na%20Ko%20Ga%20Megane%20Wo%20Wasureta/Season%201/ "Suki Na Ko Ga Megane Wo Wasureta")
 30. [Spy Kyoushitsu S2](https://backup.indexkuhaku.workers.dev/0:/[1080P]%20ANIME%20ONGOING/Spy%20Kyoushitsu%20S2/Season%202/ "Spy Kyoushitsu S2")
 31. [Shingeki no Kyojin Final Season](https://backup.indexkuhaku.workers.dev/0:/[1080P]%20ANIME%20ONGOING/Shingeki%20no%20Kyojin:%20The%20Final%20Season/Season%204/ "Shingeki no Kyojin Final Season")
